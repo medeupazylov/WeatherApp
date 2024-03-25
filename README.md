@@ -1,4 +1,2 @@
 
-
-Uploading Simulator Screen Recording - iPhone 15 Pro - 2024-03-26 at 02.30.11.mp4…
-
+https://github.com/medeupazylov/WeatherApp/assets/113336831/12f1a4d0-1b21-4303-8c61-fd730e6520ca
